@@ -1,1 +1,1 @@
-[Click here to see this page](https://manuelincd.github.io/LANDIN/)
+[Click here to see this page](https://manuelincd.github.io/Diquesiplis/)
